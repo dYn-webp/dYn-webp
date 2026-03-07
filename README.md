@@ -1,4 +1,4 @@
-# 🏗️ [NAMA KAMU] | THE AI ORCHESTRATOR (MANDOR AI)
+# 🏗️ [dYn-webp] | THE AI ORCHESTRATOR (MANDOR AI)
 
 <p align="center">
   <a href="https://git.io/typing-svg">
